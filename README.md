@@ -1,8 +1,8 @@
-- 👋 シロネコアリクイです
-- 👀 Twitter→Firefo_sironeko
-- 🌱 
-- 💞️ 
-- 📫
+-└(՞ةڼ◔)」
+- └(՞ةڼ◔)」
+- └(՞ةڼ◔)」
+- └(՞ةڼ◔)」
+└(՞ةڼ◔)」└(՞ةڼ◔)
 
 <!---
 sironekoarikui/sironekoarikui is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
